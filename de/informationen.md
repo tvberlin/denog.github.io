@@ -46,4 +46,4 @@ Wir wollen ein möglichst breites Spektrum an Informationen zur Verfügung stell
   
 Solltest du Interesse daran haben den Verein aktiv zu unterstützen, so tritt doch bitte mit uns in Kontakt unter: ak-veranstaltung@denog.de  
   
-Der Verein lebt durch seine Mitglieder. Diese kommen einmal jährlich zu einer Mitgliederversammlung zusammen, bei der alle Themen rund um den DENOG e.V. besprochen werden, solltest du auch Interesse an einer Mitgliedschaft haben, so findest du gerne hier den [Mitgliedsantrag](https://www.denog.de/files/verein/DENOG_Antrag_Mitgliedschaft_v18_SEPA_20181002.pdf)
+Der Verein lebt durch seine Mitglieder. Diese kommen einmal jährlich zu einer Mitgliederversammlung zusammen, bei der alle Themen rund um den DENOG e.V. besprochen werden, solltest du auch Interesse an einer Mitgliedschaft haben, so findest du gerne hier den [Mitgliedsantrag](https://www.denog.de/files/verein/DENOG_Antrag_Mitgliedschaft.pdf)
